@@ -29,7 +29,7 @@
 
 ## 🎯 Career Goals
 
-Seeking a position in whcih I can utilize data-driven strategies for impactful business insights. I aspire to work in an evironment in which I enjoy going to work and am constantly challenged to learn new things.
+I enjoy utilizing data-driven strategies for impactful business insights. I aspire to work in an evironment in which I enjoy going to work and am constantly challenged to learn new things.
 
 ---
 
