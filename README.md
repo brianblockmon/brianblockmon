@@ -29,7 +29,7 @@
 
 ## 🎯 Career Goals
 
-Seeking a position in whcih I can utilize data-driven strategies for impactful business insights. It is important that I work in an environment in which I am contstantly pushed to learn new things.
+Seeking a position in whcih I can utilize data-driven strategies for impactful business insights. I would like to work in an environment in which I am contstantly pushed to learn new things.
 
 ---
 
